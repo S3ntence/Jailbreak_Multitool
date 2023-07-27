@@ -1,9 +1,9 @@
-# Jailbreak_Multitool
-Jailbreak Tweaks #roblox #multitool #exploits
+# DUPING_MULTITOOL
+Duping Tweaks #roblox #multitool #exploits
 (ignore) ^^^
 
 
-# WELCOME TO JAILBREAK TWEAKS
+# WELCOME TO DUPING TWEAKS
 
 ## WE ARE A NEW METHOD BUILT ON HARD WORK AND DEDACATION
 
