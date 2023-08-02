@@ -10,4 +10,4 @@ Duping Tweaks #roblox #multitool #exploits
 ## IN OUR FOLDER WE HAVE A EXE VERSION AND A PYTHON VERSION
 
 ### DISCORD
-### https://discord.gg/zS98GrYy
+### https://discord.gg/wPn7JsSwBS
